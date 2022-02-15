@@ -6,5 +6,6 @@ He was a troubled young man.
 West Philadelphia born and raised.
 Sometimes he would find a good bar to hang out in
 but nobody ever wanted to sit with him.
-On the playground was where he spent most of my days
-But the police removed him for innapropriate behaviour
+On the playground was where he spent most of his days.
+But the police removed him for innapropriate behaviour.
+That monster jack... littered!
