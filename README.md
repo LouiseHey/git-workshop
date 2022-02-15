@@ -10,4 +10,5 @@ On the playground was where he spent most of his days.
 But the police removed him for inappropriate behaviour.
 That monster jack... littered!
 Making trouble in my neighborhood!
-If he carries on like this he's gunna get an ASBO
+If he carries on like this he's gunna get an ASBO.
+His parents have now disowned him.
