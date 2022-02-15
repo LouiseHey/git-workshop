@@ -5,3 +5,4 @@ about how my life got flipped-turned upside down.
 He was a troubled young man.
 West Philadelphia born and raised
 Sometimes he would find a good bar to hang out in
+but nobody ever wanted to sit with him.
