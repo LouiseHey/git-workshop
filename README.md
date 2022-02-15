@@ -15,3 +15,4 @@ His parents have now disowned him.
 He got in one little fight and my mom got scared.
 She was always worried about him, you can clearly see why.
 Then one day he found his new family, Scott Logic!
+And sat on his throne as the prince of Bel-Air.
