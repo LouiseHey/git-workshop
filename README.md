@@ -7,6 +7,7 @@ West Philadelphia born and raised.
 Sometimes he would find a good bar to hang out in
 but nobody ever wanted to sit with him.
 On the playground was where he spent most of his days.
-But the police removed him for innapropriate behaviour.
+But the police removed him for inappropriate behaviour.
 That monster jack... littered!
 Making trouble in my neighborhood!
+If he carries on like this he's gunna get an ASBO
